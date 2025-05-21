@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on open-source AI projects
 - 📫 How to reach me : [LinkedIn](https://www.linkedin.com/in/plabani-p-b27074298/) | [Email](plabani30@gmail.com)
 - 😄 Pronouns: she/her
-- 
+  
   
 
 <!---
